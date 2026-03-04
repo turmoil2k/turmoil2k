@@ -28,7 +28,7 @@ O&O = Heavy On & Offs[/b]
 
 ## Rolling some credits of funny shit I saved
 Cleaned my whole bio only keeping the old credits I saved.  
-Elite ball knowledge might required for some of the below references.  
+being retarded might be required for some of the below references.  
 
 - koalatf2: when in doubt kater it out
 - ["turmoil has to be sandbagger or something..." 💀💀💀](https://youtu.be/-ZrlzjahGR0?t=2358)
@@ -42,3 +42,9 @@ Elite ball knowledge might required for some of the below references.
 - S3XY SKULL : VPN TIME ^__________________________________^
 - "ROLLOUTS SMOOTHER THAN A LUBRICATED HORSE COCK. NEVER FORGET"-alain 1/26/2k19 10:26pm 🙏 ALA1N IS MY SAVIOUR 🙏
 - "you have schizoid personality disorder... existential crisis is next..." - Zhalwin Atter⠀⠀⠀⠀⠀cuzhalwin <3
+
+---
+
+elite ball knowledge required below
+
+<img width=100% alt="image" src="https://github.com/user-attachments/assets/0c419850-f11b-41c1-82eb-ccecb9cfe4a5" />
