@@ -1,4 +1,5 @@
-~Youtube~ ~Twitch~  
+~Youtube~ ~Twitch~ 
+
 One of my New Year Resolutions of 2024, is taking a fuckin break.  
 So, I'm going to take a break, its been 10 years, 2013 - 2023 out.  
 
@@ -23,8 +24,7 @@ So, I'm going to take a break, its been 10 years, 2013 - 2023 out.
 
 O&O = Heavy On & Offs[/b]
 
-
-
+![](https://komarev.com/ghpvc/?username=turmoil2k&color=green)
 
 ## Rolling some credits of funny shit I saved
 Cleaned my whole bio only keeping the old credits I saved.  
