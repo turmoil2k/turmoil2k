@@ -22,6 +22,6 @@ being retarded might be required for some of the below references.
 
 elite ball knowledge required below
 
-<img width=100% alt="image" src="https://github.com/user-attachments/assets/0c419850-f11b-41c1-82eb-ccecb9cfe4a5" />
+<img width=100% alt="image" src="assets/557835806-0c419850-f11b-41c1-82eb-ccecb9cfe4a5.png" />
 
 ![](https://komarev.com/ghpvc/?username=turmoil2k&color=green)
