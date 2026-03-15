@@ -1,3 +1,6 @@
+new years resolutions of 2024, is taking a break byebyee.
+2013 (steam date) to 2023.
+
 ## Rolling some credits of funny shit I saved
 Cleaned my whole bio only keeping the old credits I saved.  
 being retarded might be required for some of the below references.  
